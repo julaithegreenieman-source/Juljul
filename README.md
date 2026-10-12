@@ -1,2 +1,0 @@
-# Juljul
-Only for entertainment
